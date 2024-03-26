@@ -1,1 +1,0 @@
-# MIKTI-Challenge2
